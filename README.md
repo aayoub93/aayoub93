@@ -24,9 +24,12 @@ Here are some ideas to get you started:
 
 ## 
 
+#### Here's some trivia about me!
 ###### My favorite _____ is... 🤔
 - :speech_balloon: Quote: "I find your lack of faith disturbing." - Darth Vader
 - :book: Book: [Do Androids Dream of Electric Sheep?](https://www.goodreads.com/book/show/36402034-do-androids-dream-of-electric-sheep?from_search=true&from_srp=true&qid=RVgMw3nb2b&rank=9), by Philip K Dick
 - :fork_and_knife: Food: SEAFOOD! (except for oysters and mussels :mask:)
 - :movie_camera: Movie: Star Wars Episode 5: The Empire Strikes Back
-- :notes: Song: Cult of Personality, by Living Colour
+- :notes: Song: [Cult of Personality](https://www.youtube.com/watch?v=7xxgRUyzgs0), by Living Colour
+- :soccer: Sports team: Liverpool FC
+- :tv: Show: [Fullmetal Alchemist: Brotherhood](https://www.netflix.com/search?q=fullm&jbv=70204981)
