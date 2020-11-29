@@ -31,5 +31,5 @@ Here are some ideas to get you started:
 - :fork_and_knife: Food: SEAFOOD! (except for oysters and mussels :mask:)
 - :movie_camera: Movie: Star Wars Episode 5: The Empire Strikes Back
 - :notes: Song: [Cult of Personality](https://www.youtube.com/watch?v=7xxgRUyzgs0), by Living Colour
-- :soccer: Sports team: Liverpool FC
+- :soccer: Sports team: [Liverpool FC](https://www.liverpoolfc.com/)
 - :tv: Show: [Fullmetal Alchemist: Brotherhood](https://www.netflix.com/search?q=fullm&jbv=70204981)
